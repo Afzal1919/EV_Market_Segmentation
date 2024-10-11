@@ -61,4 +61,4 @@ Thanks to [Clean Mobility Shift](https://cleanmobilityshift.com) for providing t
 ---
 
 ### Contact
-For more information, please contact: [Your Name] - [Your Email]
+For more information, please contact: [mohdafzal1919@gmail.com]
